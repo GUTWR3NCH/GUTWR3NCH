@@ -3,11 +3,11 @@
   
 ![Static Badge](https://img.shields.io/badge/Alois's%20Canon%20Husband-blue) ![Static Badge](https://img.shields.io/badge/Zwemirs_Victims-6%2C66k-blue)
 
- ![](https://64.media.tumblr.com/b258816bf6c738f31f3e5a46054a3693/3432e847ec819b1c-d8/s75x75_c1/a3c0c4bdac306fc63ac1a473d34d3c7a033922ab.gifv) ![](https://64.media.tumblr.com/67907a245d9a26e8c4c44c6859a1c874/3cd4d37187fbf580-4d/s75x75_c1/2f750c550917e0c16a0c4f9ee5b4252fe5be9c04.gifv)
+ ![](https://64.media.tumblr.com/b258816bf6c738f31f3e5a46054a3693/3432e847ec819b1c-d8/s75x75_c1/a3c0c4bdac306fc63ac1a473d34d3c7a033922ab.gifv) ![](https://64.media.tumblr.com/67907a245d9a26e8c4c44c6859a1c874/3cd4d37187fbf580-4d/s75x75_c1/2f750c550917e0c16a0c4f9ee5b4252fe5be9c04.gifv) ![](https://64.media.tumblr.com/35da791798339a1cd81108d1b99a898a/f5d168a9e2967e26-3d/s75x75_c1/c3a7ecfb2a21cf0df778479f8ca115d5fc5636b5.gifv)
 
 ![](https://64.media.tumblr.com/f74d23fdd83827595e61eb6fac0ed817/34b6012b4ab23e5c-ce/s1280x1920/dae5d3e47f3540e437321fa02e426b1a6a7d0bde.pnj)
 
-[main-github](link) - [prns-page](6)
+[main-github](https://github.com/VIVE-LA-FRANCEc) - [prns-page](https://en.pronouns.page/@lempereur)
 ![](https://64.media.tumblr.com/694ff79efccf8a00e5d11a0a679045d1/c8381bb53f84d080-59/s1280x1920/705eafb736e44ef79b640c4e9d65f73c089c5ea9.pnj)
 
 ><img src="https://64.media.tumblr.com/3a0bda786be8e28fc91e3385d816b1df/34b6012b4ab23e5c-ed/s1280x1920/4f8825ebee75ae1bd21776878705fd945bbfc076.pnj" width="45%"> <img src="https://64.media.tumblr.com/7873cd48ae5f6ab0566b0c97aa1c9de8/34b6012b4ab23e5c-4c/s1280x1920/cb59f0c501c1ffe0756de2732667fe00ff3cc68d.pnj" width="45%">
